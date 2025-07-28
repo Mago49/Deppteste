@@ -1,2 +1,1 @@
-# Deppteste
-Vamos ver se vou fazer certo
+# Boa noite galerinha do bem, estou progredindo passo a passo, mas ainda estou estudando pelo telefone(consegui um novo, então alguns recursos vai dá pra aprender). Logo vai chegar um computador , aí vai dá bom todos os projetos da forma que vocês pediram. Muito obrigado!
